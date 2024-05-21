@@ -1,6 +1,6 @@
 ### Olá, sejam bem-vindos! 🤍
 
-Meu nome é Kézia Silva.
+Meu nome é Kei Silva.
 
 - Utilizo este espaço para me organizar e compartilhar alguns projetos.
 
